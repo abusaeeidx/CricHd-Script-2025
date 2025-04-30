@@ -1,3 +1,10 @@
+<h1 align="center">
+  <br>
+  <a href=""><img src="https://raw.githubusercontent.com/abusaeeidx/CricHd-playlists-Auto-Update-permanent/refs/heads/main/logo.jpg" alt="🔥CricHD🔥" width="200"></a>
+  <br>
+  🔥 CricHd Script 2025🔥
+  <br>
+</h1>
 🔰 CricHD Script 🔥<br>
 ━━━━━━━━━━━━━━<br>
 ✅ Demo link 1: <br>
