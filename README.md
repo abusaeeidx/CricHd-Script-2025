@@ -1,9 +1,9 @@
 🔰 CricHD Script 🔥<br>
 ━━━━━━━━━━━━━━<br>
 ✅ Demo link 1: <br>
- https://xfireflix.ct.ws/crichd-new/<br>
+ https://crichd-sports-web.pages.dev/<br>
 ✅ Demo link 2: <br>
- 
+ https://xfireflix.ct.ws/crichd-new/<br>
 -----------------------------------------------<br>
 ✅ Full Auto Update<br>
 ✅ All-in-One! Sports Script <br>
