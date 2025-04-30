@@ -1,4 +1,4 @@
-<h1>🔰 CricHD Script 🔥<h1/><br>
+🔰 CricHD Script 🔥<br>
 ━━━━━━━━━━━━━━<br>
 ✅ Demo link 1: <br>
  https://xfireflix.ct.ws/crichd-new/<br>
